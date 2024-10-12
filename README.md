@@ -1,1 +1,0 @@
-# Hurricane-Helene-Impact
